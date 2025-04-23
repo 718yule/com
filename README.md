@@ -5,9 +5,9 @@
 
 娱乐718永久地址（需科学⬆️上网） https://www.718yule.com （禁止直接点击访问）请复制链接粘贴到浏览器
 
-备用地址1： https://yule.qiyaoba.net （禁止直接点击访问）请复制链接粘贴到浏览器
+备用地址1： https://crush.pgeqhcx.xyz/ （禁止直接点击访问）请复制链接粘贴到浏览器
 
-备用地址2： https://y.718uc.com （禁止直接点击访问）请复制链接粘贴到浏览器
+备用地址2： https://plume.vrqkera.xyz/ （禁止直接点击访问）请复制链接粘贴到浏览器
 
 失联后如何找到回家的路： 方法1:加入娱乐718VX群： https://www.718yule.com/weixin.html （禁止直接点击访问）请复制链接粘贴到浏览器
 
@@ -29,7 +29,7 @@
 
 极品资源，巨乳黑丝情趣上位式摇摆！
 
-https://www.nb718.com/archives/19787
+https://plume.vrqkera.xyz/archives/19787
 
 常见问题： 网址打不开？？？
 
