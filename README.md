@@ -5,9 +5,9 @@
 
 娱乐718永久地址（需科学⬆️上网） https://www.718yule.com （禁止直接点击访问）请复制链接粘贴到浏览器
 
-备用地址1： https://gglaillkd.xyz （禁止直接点击访问）请复制链接粘贴到浏览器
+备用地址1： https://gglaillkd.xyz     （禁止直接点击访问）请复制链接粘贴到浏览器
 
-备用地址2： https://qifeichigua.xyz（禁止直接点击访问）请复制链接粘贴到浏览器
+备用地址2： https://qifeichigua.xyz   （禁止直接点击访问）请复制链接粘贴到浏览器
 
 失联后如何找到回家的路： 方法1:加入娱乐718VX群： https://www.718yule.com/weixin.html （禁止直接点击访问）请复制链接粘贴到浏览器
 
